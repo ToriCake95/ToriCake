@@ -14,5 +14,5 @@ Please interact if: We have the same interests, we're friends, you support DID/T
 
 Do NOT interact if: Racist/Xenophobic, Transphobic/Homophobic, Do NOT support TT/TD/DID, make fun of people with mental disorders/disabilities, sexist, radical feminist, support DreamSMP[Unless you're my friend and support them.], zoophile/support bestiality, make r8pe jokes, support abuse in any way, pedophile, etc.
 
-This is my pronouns.me page!: https://en.pronouns.page/@ToriCake
+
 
