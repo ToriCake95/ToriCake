@@ -1,4 +1,4 @@
-Hello! I'm Tori. This is my GitHub page, and I hope you enjoy it! Over time I will edit this, so you'll get a better understanding of who I am. If you're here, you're either from Pony Town or Discord! I'm currently in my 20s and my birthday is on August 14th! I'm a pansexual genderfluid person. I go by she her/and he/him! I am Puerto Rican! 😘
+Hello! I'm Victor. This is my GitHub page, and I hope you enjoy it! Over time I will edit this, so you'll get a better understanding of who I am. If you're here, you're either from Pony Town or Discord! I'm currently in my 30, and my birthday is on August 14th! I'm a pansexual trans man, and I go by he/him! I am Puerto Rican! 😘
 
 ASK ME ABOUT MY FNAF AU IT'S REALLY CUTE AND INCLUSIVE TO THE LGBT. =3
 
